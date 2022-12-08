@@ -1,5 +1,5 @@
 - Hi (^０^)ノ, I’m @PeachyStuff, from Italy 🍕
-- Computer Science Engineer 🖥️ 👩‍💻
+- Computer Science Engineering University Student 🖥️ 👩‍💻
 - I’m interested in VideoGames, 3D art, AI, literally any type of code  (⊃｡•́‿•̀｡)⊃
 - I’m currently learning c standard (･ω<)☆
 - I can collaborate on videogame projects 
